@@ -1,2 +1,2 @@
 ## Oto pomysł na mój projekt:
-> [Pomysł na projekt]
+> [Przejście na odnawialne źródła energii – inwestowanie w energię słoneczną, wiatrową, wodną i geotermalną, aby zmniejszyć zależność od paliw kopalnych.]
